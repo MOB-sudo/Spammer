@@ -1,0 +1,1 @@
+Just start thr script and start spamming
